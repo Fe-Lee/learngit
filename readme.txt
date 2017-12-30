@@ -5,4 +5,4 @@ Git tracks changes.
 yes.
 李铁。
 加油。
-Come on
+Come on. You are the best.
